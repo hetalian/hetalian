@@ -37,7 +37,7 @@ $\color{#28a745}{\mathrm{LUKAS/CONNOR}}$
 
 -------------------------------------------
 
-not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also **pleasehpleasehpleaaaaaaaaaase** help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
+not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also **pleasehpleasehpleaaaaaaaaaase** help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant find their twitter OK?
 
 <br><br>
 
