@@ -33,11 +33,11 @@ $\color{#28a745}{\mathrm{LUKAS/CONNOR}}$
 
 <br>
 
-i am 17 (18 in a few months). i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ (^_−)☆
+**i am 17 (18 in a few months)**. i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ **(^_−)☆**
 
 -------------------------------------------
 
-not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also pleasehpleasehpleaaaaaaaaaase help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
+not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also **pleasehpleasehpleaaaaaaaaaase** help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
 
 <br><br>
 
