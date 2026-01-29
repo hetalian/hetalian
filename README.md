@@ -69,7 +69,7 @@ not sure what else to add other than i like to draw and complex media / characte
 > [!Caution]
 > i do my own thing and u do yours.
 > i am straightforward about certain things and i don't use tone tags unless u ask for them, maybe.
-> idgaf what anyone does unless its actually serious
+> free block ?????????????????????
 
 </br>
 
