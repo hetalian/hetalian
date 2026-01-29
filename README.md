@@ -35,9 +35,22 @@ $\color{#28a745}{\mathrm{LUKAS/CONNOR}}$
 
 i am 17 (18 in a few months). i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ (^_−)☆
 
-i do my own thing and u do yours, nothig is really a big deal for me. i am straightforward about certain things and i don't use tone tags not really required but ill use them if u want me to 
+-------------------------------------------
 
 not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also pleasehpleasehpleaaaaaaaaaase help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
 
+  </a>
+
+</div>
 </br>
+
+
+<img src="https://64.media.tumblr.com/339d6e34abcdf57074b76b2f2bafb775/bd369c6e033fb438-57/s500x750/6bfa0284a06ca8a9668aff685bd6546c03cb813c.pnj" width=106px align="right">
+
+> [!Caution]
+> i do my own thing and u do yours.
+> i am straightforward about certain things and i don't use tone tags unless u ask for them, maybe.
+> idgaf what anyone does unless its actually serious
+
 </br>
+
