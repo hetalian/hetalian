@@ -47,7 +47,11 @@ not sure what else to add other than i like to draw and complex media / characte
   </a>
 
    <a href="https://www.youtube.com/watch?v=JRTcGf3rw4U">
-    <img src="https://64.media.tumblr.com/8f027ee09366cc45d876269d2a91f542/56a4a6749f00fb6d-ed/s100x200/4976bec0401f02803a8f8a354aa8eccbe4e539c6.gifv">
+    <img src="https://64.media.tumblr.com/4e26d1ba7d3a92e97f3b2724d0b2ac58/1f4dede3b74dda12-73/s100x200/993587725c353296f60ce3cae43c62683161c956.pnj">
+  </a>
+
+  <a href="https://www.youtube.com/watch?v=y4PCFLt45z0">
+    <img src="https://64.media.tumblr.com/5dbe5a620244d39f518a60c83115ff59/90523fee2e2a1218-8a/s100x200/c530323e59241162eb937a88a97ada7583d0b50c.pnj">
   </a>
   
   <a href="https://www.youtube.com/watch?v=HnLdQR36AqI">
