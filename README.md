@@ -5,13 +5,14 @@
 <br><br>
 
 <p align="center">
-  <a href="https://y-y.straw.page/">
-    <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
-  </a>
-  
   <a href="https://tnm.atabook.org/">
     <img src="https://img.shields.io/badge/ATABOOK-blue?style=plastic">
   </a>
+
+   <a href="https://y-y.straw.page/">
+    <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
+  </a>
+  
   
   <a href="https://42x.straw.page/">
     <img src="https://img.shields.io/badge/GIMMICKS-blue?style=plastic">
