@@ -23,6 +23,8 @@ $\color{#28a745}{\mathrm{LUKAS/CONNOR}}$
 
 <div align="justify"> </p>  </a>
 
+<br>
+
 i am 17 (18 in a few months). i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ (^_−)☆
 
 i do my own thing and u do yours, nothig is really a big deal for me. i am straightforward about certain things and i don't use tone tags not really required but ill use them if u want me to 
