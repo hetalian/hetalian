@@ -1,5 +1,5 @@
 <a href="https://github.com/hetalian">
-  <img src="https://64.media.tumblr.com/5c47e2738091108b423fc7974d72a21d/829ce1548d03fd05-e5/s400x600/1228d0efae60a0c6b74e72ee8a65b09ab54334e9.pnj" alt="Banner"  style="width:100%; height:auto"/>
+  <img src="https://i.pinimg.com/1200x/80/83/94/80839421a437f946e9fb32554f9fe5d9.jpg" alt="Banner"  style="width:100%; height:auto"/>
 </a>
 
 <br><br>
@@ -11,7 +11,7 @@
   <br><br>
   
 <a href="https://github.com/hetalian">
-  <img src="https://64.media.tumblr.com/949bdc729a9fe7edadbf660511dcab10/6eabe8cd53a3e20b-04/s2048x3072/13b064d6712459a4d04f6113ff76c20b8959546c.gifv" </p>  </a>
+  <img src="https://64.media.tumblr.com/9318bc687ba2738520c57197c3148456/6eabe8cd53a3e20b-8d/s2048x3072/0ba7a44b1f752273bd91e15d67d1d6711f082404.gifv" </p>  </a>
 
 <!-- Who am i? -->
 <img src="https://64.media.tumblr.com/c198907ff1ded6068507ec1c63d0e35d/bd369c6e033fb438-6d/s500x750/73acb6c0924fb9ab4ce75f943b5b03a6dd612c9a.pnj" width=390 align="left">
@@ -27,7 +27,7 @@ i am 17 (18 in a few months). i have a lot of interests and think about them qui
 
 i do my own thing and u do yours, nothig is really a big deal for me. i am straightforward about certain things and i don't use tone tags not really required but ill use them if u want me to 
 
-not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk
+not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also pleasehpleasehpleaaaaaaaaaase help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
 
 </br>
 </br>
