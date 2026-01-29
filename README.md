@@ -11,7 +11,7 @@
   <br><br>
   
 <a href="https://github.com/hetalian">
-  <img src="https://64.media.tumblr.com/9318bc687ba2738520c57197c3148456/6eabe8cd53a3e20b-8d/s2048x3072/0ba7a44b1f752273bd91e15d67d1d6711f082404.gifv" </p>  </a>
+  <img src="https://64.media.tumblr.com/1ba052cf6abbd626867d77d8ba11ee08/87099ffdeb7b347d-52/s2048x3072/67286b7b7ec99a8a3234f4975c6f4156c1a0a5ea.pnj" </p>  </a>
 
 <!-- Who am i? -->
 <img src="https://64.media.tumblr.com/c198907ff1ded6068507ec1c63d0e35d/bd369c6e033fb438-6d/s500x750/73acb6c0924fb9ab4ce75f943b5b03a6dd612c9a.pnj" width=390 align="left">
