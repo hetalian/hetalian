@@ -6,7 +6,10 @@
 
 <p align="center">
   <a href="https://y-y.straw.page/">
-    <img src="https://img.shields.io/badge/strawpage-blue?style=plastic">
+    <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
+  
+  <a href="https://tnm.atabook.org/">
+    <img src="https://img.shields.io/badge/ATABOOK-blue?style=plastic">
 
   <br><br>
   
