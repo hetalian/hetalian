@@ -39,6 +39,25 @@ i am 17 (18 in a few months). i have a lot of interests and think about them qui
 
 not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also pleasehpleasehpleaaaaaaaaaase help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant remember who they r anymore
 
+<br><br>
+
+<p align="center">
+  <a href="https://www.youtube.com/watch?v=YBJhzfvdyKw">
+    <img src="https://64.media.tumblr.com/dc90443bfeb4424f034e49ad1968e58c/f13fa229e6d0de97-19/s100x200/bcd7198a068c492cb1be7220bf39c6ff5fbaf305.gifv">
+  </a>
+
+   <a href="https://www.youtube.com/watch?v=JRTcGf3rw4U">
+    <img src="https://64.media.tumblr.com/8f027ee09366cc45d876269d2a91f542/56a4a6749f00fb6d-ed/s100x200/4976bec0401f02803a8f8a354aa8eccbe4e539c6.gifv">
+  </a>
+  
+  <a href="https://www.youtube.com/watch?v=HnLdQR36AqI">
+    <img src="https://64.media.tumblr.com/27ff977ee779d6461bceeb5283df1af5/1b45d810357bc732-1a/s100x200/bf48bdf639a3f38e03224a64cb8f24e5c22efa4d.pnj">
+  </a>
+</p>
+
+  <br><br>
+  
+
   </a>
 
 </div>
