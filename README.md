@@ -42,19 +42,19 @@ not sure what else to add other than i like to draw and complex media / characte
 <br><br>
 
 <p align="center">
-  <a href="https://www.youtube.com/watch?v=YBJhzfvdyKw">
+  <a href="https://youtu.be/ch4uD8776-M?si=ptrmqQIIGwzBocEE&t=26">
     <img src="https://64.media.tumblr.com/dc90443bfeb4424f034e49ad1968e58c/f13fa229e6d0de97-19/s100x200/bcd7198a068c492cb1be7220bf39c6ff5fbaf305.gifv">
   </a>
 
-   <a href="https://www.youtube.com/watch?v=JRTcGf3rw4U">
+   <a href="https://www.youtube.com/watch?v=T8N7SAiZUBw">
     <img src="https://64.media.tumblr.com/4e26d1ba7d3a92e97f3b2724d0b2ac58/1f4dede3b74dda12-73/s100x200/993587725c353296f60ce3cae43c62683161c956.pnj">
   </a>
 
-  <a href="https://www.youtube.com/watch?v=y4PCFLt45z0">
+  <a href="https://youtu.be/TVOF7mK7pnk?si=vRkVporpgTPkqgIZ&t=7">
     <img src="https://64.media.tumblr.com/5dbe5a620244d39f518a60c83115ff59/90523fee2e2a1218-8a/s100x200/c530323e59241162eb937a88a97ada7583d0b50c.pnj">
   </a>
   
-  <a href="https://www.youtube.com/watch?v=HnLdQR36AqI">
+  <a href="https://www.youtube.com/watch?v=v6vgxHXPfvM">
     <img src="https://64.media.tumblr.com/27ff977ee779d6461bceeb5283df1af5/1b45d810357bc732-1a/s100x200/bf48bdf639a3f38e03224a64cb8f24e5c22efa4d.pnj">
   </a>
 </p>
