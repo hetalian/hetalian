@@ -9,7 +9,7 @@
     <img src="https://img.shields.io/badge/ATABOOK-blue?style=plastic">
   </a>
 
-   <a href="https://y-y.straw.page/">
+   <a href="https://hetalian.straw.page/">
     <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
   </a>
   
