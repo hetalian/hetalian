@@ -25,7 +25,7 @@
 <img src="https://64.media.tumblr.com/c198907ff1ded6068507ec1c63d0e35d/bd369c6e033fb438-6d/s500x750/73acb6c0924fb9ab4ce75f943b5b03a6dd612c9a.pnj" width=390 align="left">
 <div align="center">
 
-$\color{#28a745}{\mathrm{LUKAS/CONNOR}}$
+$\color{#28a745}{\mathrm{LUKAS}}$
  
 </div>
 
