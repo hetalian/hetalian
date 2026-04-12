@@ -9,15 +9,10 @@
     <img src="https://img.shields.io/badge/ATABOOK-blue?style=plastic">
   </a>
 
-   <a href="https://hetalian.straw.page/">
+   <a href="https://y-y.straw.page/">
     <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
   </a>
-  
-  
-  <a href="https://42x.straw.page/">
-    <img src="https://img.shields.io/badge/GIMMICKS-blue?style=plastic">
-  </a>
-</p>
+
 
   <br><br>
   
@@ -33,7 +28,7 @@ $\color{#28a745}{\mathrm{LUKAS}}$
 
 <br>
 
-**i am 17 (18 in a few months)**. i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ **(^_−)☆**
+**i am 17 (18 in a few months)**. i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ **(^_−)☆** alssssssssooo i do. ship caname lolol i don't care about what you ship. block me if it bothers you that much or dont interact
 
 -------------------------------------------
 
