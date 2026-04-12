@@ -28,11 +28,11 @@ $\color{#28a745}{\mathrm{LUKAS}}$
 
 <br>
 
-**i am 17 (18 in a few months)**. i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ **(^_−)☆** alssssssssooo i do. ship caname lolol i don't care about what you ship. block me if it bothers you that much or dont interact
+**i am 17 (18 in a few months)**. i have a lot of interests and think about them quite often......... i don't really play ponytown as much as i used to and will rarely approach anyone BUT i dont mind getting approached and possibly being friends especially if we have similar interests ........ **(^_−)☆**
 
 -------------------------------------------
 
-not sure what else to add other than i like to draw and complex media / characters and i would LOVE recommendations .. Ok? kkkkkkk also **pleasehpleasehpleaaaaaaaaaase** help me find the artist on the banner.... i tried to use reverse searh but it directed me to a porn ad and i cant find their twitter OK?
+alssssssssooo i do. ship caname lolol i don't care about what you ship and block me if it bothers you that much or dont interact and also don't attack anyone who has me on my bio because it's only recently i mentioned this or talked about it thaaaaaanx
 
 <br><br>
 
