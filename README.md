@@ -37,7 +37,7 @@ alssssssssooo i do. ship caname lolol i don't care about what you ship and block
 <br><br>
 
 <p align="center">
-  <a href="https://youtu.be/ch4uD8776-M?si=ptrmqQIIGwzBocEE&t=26">
+  <a href="https://www.youtube.com/watch?v=tTP8vCiCq4A">
     <img src="https://64.media.tumblr.com/dc90443bfeb4424f034e49ad1968e58c/f13fa229e6d0de97-19/s100x200/bcd7198a068c492cb1be7220bf39c6ff5fbaf305.gifv">
   </a>
 
