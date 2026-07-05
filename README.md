@@ -13,6 +13,11 @@
     <img src="https://img.shields.io/badge/STRAWPAGE-blue?style=plastic">
   </a>
 
+<br><br>
 
+<div align="center">
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31y5m6rerd5diicdc46jf6dii3pm&cover_image=true&theme=apple&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&mode=light)](https://github.com/kittinan/spotify-github-profile)
+
+</div>
 
